@@ -1,4 +1,5 @@
-              **¡Holaaaa!** 👋
+              ¡HOLAAAA! 👋
+              
 Me llamo **John Vargas**, pero puedes decirme **Negrito** 😄
 
 Soy estudiante de **Ingeniería en Sistemas** 🖥️🎓
